@@ -11,4 +11,5 @@ Saya sangat senang dan masih semangat mengikuti rangkaian INTRIVIA karena rangka
 ## Kesan Pesan Cluster 12 Sejauh Ini
 Saya sangat senang di Cluster 12 karena ada kakak pendamping yang baik yaitu Kak Rere dan Kak Raihan. Saya juga mendapat teman yang baik dan ramah. Saya sangat diterima disini.
 
-
+## Harapan Kuliah
+Harapan saya kuliah adalah mendalami ilmu baru, mencari relasi dan menang lomba.
