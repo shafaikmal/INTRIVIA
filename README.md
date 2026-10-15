@@ -13,3 +13,4 @@ Saya sangat senang di Cluster 12 karena ada kakak pendamping yang baik yaitu Kak
 
 ## Harapan Kuliah
 Harapan saya kuliah adalah mendalami ilmu baru, mencari relasi dan menang lomba.
+get 
